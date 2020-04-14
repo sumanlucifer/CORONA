@@ -1,2 +1,0 @@
-# CORONA
-checking
